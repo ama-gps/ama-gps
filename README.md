@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ama-gps
-- 👀 I’m interested in open source contributions, anything travel 
+- 👀 I’m interested in open source contributions, anything travel related would be a cherry on top.
 - 🌱 I’m currently learning (shh... its a secret)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me [Linkedin](https://www.linkedin.com/in/gsingh0719/)
